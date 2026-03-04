@@ -1,1 +1,1 @@
-https://samiul-hasan-sysforge.github.io/English-Janala/
+https://samiul-hasan-tanzim.github.io/English-Janala/
